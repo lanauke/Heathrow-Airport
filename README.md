@@ -1,9 +1,3 @@
----
-title: "🔥 Heathrow Airport Fire Causes Chaos – Canceled Flights & What You Must Know Now!"
-description: "Get the latest updates on the Heathrow Airport fire, flight cancellations, delays, and how it impacts travelers. Download the video now!"
-keywords: "Heathrow Airport fire, Heathrow flight cancellations, Heathrow delays, Heathrow power outage, Heathrow news today"
----
-
 # 🔥 Heathrow Airport Fire Causes Chaos – Canceled Flights & What You Must Know Now!
 
 ## What Happened at Heathrow Airport?
